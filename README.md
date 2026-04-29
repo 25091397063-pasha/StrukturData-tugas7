@@ -1,1 +1,0 @@
-# StrukturData-tugas7
